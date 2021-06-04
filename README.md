@@ -1,0 +1,2 @@
+# Rizki-Mulia
+UAS KECERDASAN BUATAN 
